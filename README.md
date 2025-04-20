@@ -1,0 +1,1 @@
+# AgriSpy-AI-Powered-Satellite-IoT-based-system-for-Precision-Farming-Smart-Pesticide-Monitoring.
